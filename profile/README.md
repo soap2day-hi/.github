@@ -41,3 +41,6 @@ Additionally, since Soap2Day is a free site, it may display ads or pop-ups that 
 ## Conclusion
 
 Soap2Day has become a popular choice for free entertainment, offering a vast collection of movies and TV shows to viewers worldwide. While its free and user-friendly approach makes it appealing, users should be mindful of the potential legal and security risks associated with such platforms. For a seamless and responsible viewing experience, consider exploring legal streaming options that support the creators and industry.
+
+Source : [soap2day](https://soap2day.lifestyle)
+
